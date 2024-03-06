@@ -1,36 +1,12 @@
-# **(UPDATE: SKINS ARE NOW ALSO ON MY WEBSITE: https://rektygon.github.io)**
 
-# Skins 
-**(NOTE: Sometimes I'm too lazy to update the skins, but it will happen every now and then)**
 
 ## **All the skins I use:**
-# [MonkoGlass Edit](https://rektygon.s-ul.eu/GNlOhItr)
-![](https://i.imgur.com/yDZozFd.jpg)
+# [zzz](https://cdn.discordapp.com/attachments/1088583400295776327/1215064143187677305/zzz.osk?ex=65fb63aa&is=65e8eeaa&hm=8a9391025e839535a7f84b447764eec3b3a7d766eda805957ccdd607755fee60&)
+![](https://osu.ppy.sh/ss/19062006/bc2c)
 <br>
-# [Monko Edit](https://rektygon.s-ul.eu/LpO3ZXOQ)
-![](https://i.imgur.com/6RpAgPr.png)
+# [bolelo skin](https://mega.nz/folder/w7kQkDLa#jWyFXEjPGusJUtnEeI_o5g/file/cj8S3LxS)
+![](https://osu.ppy.sh/ss/19062008/1fea)
 <br>
-# [Vaxedit](https://rektygon.s-ul.eu/pekpQrxb)
-![](https://i.imgur.com/cfUT2Hl.png)
+# [Poca](https://cdn.discordapp.com/attachments/1088583400295776327/1215065154803339264/Poca.osk?ex=65fb649b&is=65e8ef9b&hm=721172ab783692b7dfc4ffcfd71100a8decf2eaa8a534ea3fdf72962a2936ae8&)
+![](https://osu.ppy.sh/ss/19062001/cb8e)
 <br>
-# [Selyu](https://rektygon.s-ul.eu/jwcqinVI)
-![](https://i.imgur.com/uwfrsMO.jpg)
-<br>
-# [Colorbog Edit ](https://rektygon.s-ul.eu/j7ChbvC2)
-![](https://i.imgur.com/kqr6iUy.jpg)
-<br>
-# [Rafis skin w/ Flying Tuna Elements](https://rektygon.s-ul.eu/WUFtnddq)
-![](https://i.imgur.com/bnsAgHU.jpg)
-<br>
-# [he rack 2017 edit](https://rektygon.s-ul.eu/L9wppK4i)
-![](https://i.imgur.com/RjZ45VI.jpg)
-<br>
-
-# **Socials:**
-### [osu! Profile](https://osu.ppy.sh/users/7813296)
-### [Twitch](https://www.twitch.tv/rektygon)
-### [Youtube](https://www.youtube.com/watch?v=Ni0-j24AIYw&t=227s)
-### [Twitter](https://twitter.com/Rektygon)
-
-
- 
